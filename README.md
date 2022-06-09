@@ -2,5 +2,5 @@
 
 Seja bem vindo ao meu livro de doces :cake:
 
-- banofe
+- banoffe
 - Mousse de maracujá
